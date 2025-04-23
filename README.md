@@ -1,1 +1,1 @@
-https://gokulpvtr.github.io/Golden-Eagle-Website-2/
+https://gokulpvtr.github.io/Golden_Eagle_website/
